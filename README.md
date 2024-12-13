@@ -1,1 +1,0 @@
-# Stand-Power-s-Script
